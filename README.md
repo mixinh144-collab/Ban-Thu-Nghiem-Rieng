@@ -1,1 +1,1 @@
-# B-n-th-nghi-m-ri-ng
+# Ban thu nghiem rieng
